@@ -1,5 +1,5 @@
-sign [this](deathwilltearusapart.atabook.org) please :3c
+<p align="center">SIGN ATABOOK :3c</p>
 
-<img src="https://files.catbox.moe/cw1maw.gif" width="300">
+<p align="center">
 <img src="https://files.catbox.moe/nr2gpc.gif" width="300">
-
+</p>
