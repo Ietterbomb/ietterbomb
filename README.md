@@ -23,7 +23,11 @@ haruhi suzumiya, hetalia, ouran host
 club, vocaloid, okegom, zeno remake,
 lucky star, di gi charat, danganronpa,
 the batman, marble hornets, creepypasta,
-black butler, idk there alot more i just
+black butler, law of talos, familiar of
+zero, pokemon, neon genesis evangelion,
+ranfren, slow damage, serial experiments lain,
+old consoles, mmorpgs, visual novels,
+idk there alot more i just
 forget
 
 </details>
