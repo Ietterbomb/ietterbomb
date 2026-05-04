@@ -26,7 +26,8 @@ the batman, marble hornets, creepypasta,
 black butler, law of talos, familiar of
 zero, pokemon, neon genesis evangelion,
 ranfren, slow damage, serial experiments lain,
-old consoles, mmorpgs, visual novels,
+old consoles, mmorpgs, visual novels, your
+turn to die, genshin impact,
 idk there alot more i just
 forget
 
