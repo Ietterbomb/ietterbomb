@@ -1,14 +1,37 @@
-would be appreciated to sign my [atabook](https://deathwilltearusapart.atabook.org/) ᗜ⩊ᗜ
+<p align="right">
+<img src="https://files.catbox.moe/omephe.png" width="250" align="left">
 
+‎<img src="https://files.catbox.moe/2yceao.png"> <img src="https://files.catbox.moe/t0u561.png"> <img src="https://files.catbox.moe/zrl76i.png">
+
+<p>
+
+<p align="left">
+   sign my <a href="https://deathwilltearusapart.atabook.org/">atabook</a>    ❛     ⸺      𓈒
 <details>
+<summary>❛    ◜ ͡ ◟      dni list </summary>
 
-<summary>stuff ᗜ⩊ᗜ</summary>
+basic dni, pushy people, but other than that
+i just block freely
+</details>
 
-i dont have a specific dni, i will block freely
+<p>
+<details>
+<summary> interests ⌣⌣　　　　꒱ᩧ　　　　♡︎</summary>
 
+touhou project, the disappearance of 
+haruhi suzumiya, hetalia, ouran host
+club, vocaloid, okegom, zeno remake,
+lucky star, di gi charat, danganronpa,
+the batman, marble hornets, creepypasta,
+black butler, idk there alot more i just
+forget
 
 </details>
-<img src="https://files.catbox.moe/u47fze.png" width="350">
+  
 
-<img src="https://64.media.tumblr.com/2542a4ec1f7e09b32bd06f494dc6e0a0/43bc691f0e1b6cb1-45/s100x200/47300ee7d5e152764ac252520aa1aa022aced7d4.gifv" width="100"> <img src="https://64.media.tumblr.com/08a43eafa54dc6640395dd5e36be70f4/216164bf025189bd-51/s100x200/4c2fadd7866aec442daa3537f9d3afc1e7f35da0.pnj" width="100"> <img src="https://64.media.tumblr.com/d92d791c928c2313fed941c221464852/456c883d25e959e7-6c/s100x200/d98212349e4c240af4cebff7bed444b2c307d7d0.gifv" width="100">
+<img src="https://files.catbox.moe/nn6dqt.png" width="200">
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rdpodjzqjk7ks86updx0qjn8b&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+﹒      ⭒﹒      ⭒﹒      ⭒﹒﹒      ⭒﹒      ⭒﹒      ⭒﹒﹒      ⭒﹒      ⭒﹒      ⭒﹒
+<br>
