@@ -27,7 +27,7 @@ black butler, law of talos, familiar of
 zero, pokemon, neon genesis evangelion,
 ranfren, slow damage, serial experiments lain,
 old consoles, mmorpgs, visual novels, your
-turn to die, genshin impact,
+turn to die, genshin impact, omori, fnaf,
 idk there alot more i just
 forget
 
