@@ -22,7 +22,7 @@ touhou project, the disappearance of
 haruhi suzumiya, hetalia, ouran host
 club, vocaloid, okegom, zeno remake,
 lucky star, di gi charat, danganronpa,
-the batman, marble hornets, creepypasta,
+the batman, yume nikki, marble hornets, creepypasta,
 black butler, law of talos, familiar of
 zero, pokemon, neon genesis evangelion,
 ranfren, slow damage, serial experiments lain,
