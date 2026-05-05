@@ -12,13 +12,14 @@
   
 <p>
   
-im sorry if i dont reply, i dont mean it in a negative way im not used to new people.
-i will hide you for some time if you cover me, again i dont mean this in a negative way.
+im sorry if i dont reply, i dont mean it in a negative way im not used to new people ノ
+sometimes i will just answer you by using emotes and stuff, other than that w2i ノ
+i will hide you for some time if you cover me, again i dont mean this in a negative way
 
   
 <p>
   
-dni ; basic dni, pushy people
+dni ノ basic dni, pushy people
 
 </details>
 
