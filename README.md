@@ -6,7 +6,7 @@
 <p>
 
 <p align="left">
-   sign my <a href="https://deathwilltearusapart.atabook.org/">atabook</a>    ❛     ⸺      𓈒
+   <a href="https://deathwilltearusapart.atabook.org/">atabook</a>    <a href="https://guns.lol/joydivision">guns</a>   ❛     ⸺      𓈒
 <details>
 <summary>❛    ◜ ͡ ◟      important </summary>
   
