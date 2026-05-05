@@ -8,16 +8,26 @@
 <p align="left">
    sign my <a href="https://deathwilltearusapart.atabook.org/">atabook</a>    ❛     ⸺      𓈒
 <details>
-<summary>❛    ◜ ͡ ◟      dni list </summary>
+<summary>❛    ◜ ͡ ◟      important </summary>
+  
+<p>
+  
+im sorry if i dont reply, i dont mean it in a negative way im not used to new people.
+i will hide you for some time if you cover me, again i dont mean this in a negative way.
 
-basic dni, pushy people, but other than that
-i just block freely
+  
+<p>
+  
+dni ; basic dni, pushy people
+
 </details>
 
 <p>
 <details>
 <summary> interests ⌣⌣　　　　꒱ᩧ　　　　♡︎</summary>
-
+  
+<p>
+  
 touhou project, the disappearance of 
 haruhi suzumiya, hetalia, ouran host
 club, vocaloid, okegom, zeno remake,
