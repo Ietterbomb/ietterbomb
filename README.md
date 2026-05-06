@@ -6,34 +6,23 @@
 <p>
 
 <p align="left">
-   <a href="https://deathwilltearusapart.atabook.org/">atabook</a>    <a href="https://guns.lol/joydivision">guns</a>   ❛     ⸺      𓈒
+   sign my <a href="https://deathwilltearusapart.atabook.org/">atabook</a>
 <details>
-<summary>❛    ◜ ͡ ◟      important </summary>
-  
-<p>
-  
-im sorry if i dont reply, i dont mean it in a negative way im not used to new people ノ
-sometimes i will just answer you by using emotes and stuff, other than that w2i ノ
-i will hide you for some time if you cover me, again i dont mean this in a negative way
+<summary>  　　　      dni list </summary>
 
-  
-<p>
-  
-dni ノ basic dni, pushy people
-
+basic dni, pushy people, but other than that
+i just block freely
 </details>
 
 <p>
 <details>
-<summary> interests ⌣⌣　　　　꒱ᩧ　　　　♡︎</summary>
-  
-<p>
-  
+<summary> interests 　　　　　　　　　　　</summary>
+
 touhou project, the disappearance of 
 haruhi suzumiya, hetalia, ouran host
 club, vocaloid, okegom, zeno remake,
 lucky star, di gi charat, danganronpa,
-the batman, yume nikki, marble hornets, creepypasta,
+the batman, marble hornets, creepypasta,
 black butler, law of talos, familiar of
 zero, pokemon, neon genesis evangelion,
 ranfren, slow damage, serial experiments lain,
@@ -43,11 +32,9 @@ idk theres alot more i just
 forget
 
 </details>
-  
 
-<img src="https://files.catbox.moe/nn6dqt.png" width="200">
+
+  fixing this soon
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rdpodjzqjk7ks86updx0qjn8b&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=183a40&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-
-﹒      ⭒﹒      ⭒﹒      ⭒﹒﹒      ⭒﹒      ⭒﹒      ⭒﹒﹒      ⭒﹒      ⭒﹒      ⭒﹒
 <br>
