@@ -7,7 +7,7 @@
 <p align="left">
    sign my <a href="https://deathwilltearusapart.atabook.org/">atabook</a>
 <details>
-<summary>  　　　      dni list </summary>
+<summary>  　      dni list </summary>
 
 basic dni, pushy people, but other than that
 i just block freely
@@ -15,7 +15,7 @@ i just block freely
 
 <p>
 <details>
-<summary> interests 　　　　　　　　　　　</summary>
+<summary>　    interests 　　　　　　　　　　　</summary>
 
 touhou project, the disappearance of 
 haruhi suzumiya, hetalia, ouran host
