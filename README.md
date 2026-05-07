@@ -31,8 +31,10 @@ dni, basic dni, pushy people
 touhou project, the disappearance of 
 haruhi suzumiya, hetalia, ouran host
 club, vocaloid, okegom, zeno remake,
+rhythm games,
+welcome to the nhk,
 yume nikki, yume 2kki,lucky star, di gi charat, danganronpa,
-the batman, marble hornets, creepypasta,
+the batman 2022, DC, marble hornets, creepypasta,
 black butler, law of talos, familiar of
 zero, pokemon, neon genesis evangelion,
 ranfren, serial experiments lain,
