@@ -1,7 +1,7 @@
 <div align="center">
 
 <p align="middle">
-‎<img src="https://64.media.tumblr.com/170efdeccab6fdffdda332998184dea2/f71e68ccef774657-4e/s250x400/0e3bad6765397346dc480a6cb35a3a753eb5d217.gifv" width="100"> <img src="https://64.media.tumblr.com/88f99247b1b96d02d3727bafe59ec35c/9d47dbe19e062343-40/s250x400/32a1c84db77706f6ab914240f46ac0662e71229e.pnj" width="100"> <img src="https://adriansblinkiecollection.neocities.org/stamps/b5.gif">
+‎<img src="https://files.catbox.moe/nrlet5.gif" width="100"> <img src="https://files.catbox.moe/nke38p.png" width="100"> <img src="https://files.catbox.moe/tys8uw.gif">
 
 
 <p>
