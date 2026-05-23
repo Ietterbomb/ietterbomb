@@ -1,8 +1,7 @@
 <div align="center">
 
 <p align="middle">
-‎<img src="https://files.catbox.moe/nrlet5.gif" width="100"> <img src="https://files.catbox.moe/nke38p.png" width="100"> <img src="https://files.catbox.moe/tys8uw.gif">
-
+‎<img src="https://files.catbox.moe/lsc0h1.gif" width="300">
 
 <p>
 
