@@ -1,7 +1,7 @@
 <div align="center">
 
 <p align="middle">
-‎<img src="https://files.catbox.moe/lsc0h1.gif" width="300">
+‎<img src="https://files.catbox.moe/wrelfs.gif" width="100">
 
 <p>
 
