@@ -1,7 +1,6 @@
 <div align="center">
 
-<p align="middle">
-‎<img src="https://files.catbox.moe/xwivo7.gif" width="200">
+
 
 <p>
 
