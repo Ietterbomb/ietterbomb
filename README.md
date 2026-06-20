@@ -1,7 +1,7 @@
 <div align="center">
 
 
-whoever you are copying me your extremely untalented and stupid
+whoever you are copying me your extremely untalented and stupid, just because your on another server that doesnt mean you can copy others and get away with it so easily, you can just ask me if you want me to gift you a skin without having to copy me T_T
 <p>
 
 <img src="https://files.catbox.moe/9dftw7.jpg">
