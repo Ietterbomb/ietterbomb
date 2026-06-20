@@ -1,8 +1,10 @@
 <div align="center">
 
 
-
+whoever you are copying me your extremely untalented and stupid
 <p>
+
+<img src="https://files.catbox.moe/9dftw7.jpg">
 
 <p align="middle">
 <a href="https://kms.atabook.org/">ata</a>     ㅤㅤㅤ<a href="https://rentry.co/nofuneral">rentry</a>
