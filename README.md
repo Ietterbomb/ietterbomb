@@ -1,7 +1,6 @@
 <div align="center">
 Inside me, I'm screaming and yelling and howling like a trapped animal. And nobody pays any attention. If I had arms, I could kill myself. If I had legs, I could run away. If I had a voice, I could talk and be some kind of company for myself. I could yell for help, but nobody would help me.
-  <p></p>
-<img src="https://files.catbox.moe/miq60e.jpg" width="500" height="300">  
+  <p></p>  
 <p align="middle">
 <a href="https://kms.atabook.org/">ata</a>     ㅤㅤㅤ<a href="https://rentry.co/blackmagick">rentry</a>
   
