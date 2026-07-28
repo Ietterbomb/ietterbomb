@@ -6,5 +6,3 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rdpodjzqjk7ks86updx0qjn8b&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <br>
 
-https://github.com/user-attachments/assets/1ae0104e-c4fa-4a4f-a199-52d26bfafb28
-
